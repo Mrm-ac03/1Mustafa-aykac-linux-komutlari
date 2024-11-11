@@ -1,0 +1,2 @@
+# Mustafa-aykac-linux-komutlari
+ 
